@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://justdeltastore.com/">Buy Delta 8 THC Products</a>
+<strong><a href="https://randomx.io">Best SEO Agency</a></strong>
 </p>
 <p align="center">
   <a href="https://justdeltastore.com/"><span><img src="https://media.istockphoto.com/photos/dont-take-too-much-picture-id1199838445?k=20&amp;m=1199838445&amp;s=612x612&amp;w=0&amp;h=boEZrZGSeFECADbMKIYeud4lMo81N8d6uiMUvu3oTOs=" alt="" width="612" height="365" /></span></a>
